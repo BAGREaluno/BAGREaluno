@@ -1,5 +1,6 @@
-## ola 
-👋
+## oi (⌐■ὣ■)
+eu sou fulano terminei o emsino fundamental e ensino medio e fis uma fagudade de robotica sou bom em comunicar mas nao em esatas.
+
 
 <!--
 **BAGREaluno/BAGREaluno** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
