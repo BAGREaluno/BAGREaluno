@@ -1,5 +1,5 @@
 ## oi (⌐■ὣ■)
-eu sou fulano terminei o emsino fundamental e ensino medio e fis uma fagudade de robotica sou bom em comunicar mas nao em esatas.
+eu sou fulano terminei o ensino fundamental e ensino medio e fis uma fagudade de robotica sou bom em comunicar mas nao em esatas.
 
 
 <!--
